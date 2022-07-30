@@ -4,5 +4,5 @@
 
 😎 - I enjoy absurdity, frogs, and coffee.
 
-💞 - I worked at Toast for a long time, and now I work at _________.
+💞 - I worked at Toast for a long time, and now I work at Lattice.
 
